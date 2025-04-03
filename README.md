@@ -1,2 +1,3 @@
 # The-hunter-
-This game is you going your enemies 
+This game is about you killing your foe
+This game is about the journey of life 👌 🧬 🧬 
